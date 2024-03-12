@@ -5,7 +5,7 @@ Mirror Of Minds psychic power.
 
 ## Background
 
-Kill Team (2021 edition) has a Harlequin Void-Dance Trouple kill team (revealed
+Kill Team (2021 edition) has a Harlequin Void-Dance Troupe kill team (revealed
 in White Dwarf 474).  The Void-Dancer Troupe Shadowseer operative can perform a
 Mirror Of Minds psychic power:
 
